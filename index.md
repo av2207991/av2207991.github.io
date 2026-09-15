@@ -2,9 +2,9 @@
 
 ## Projects
 
-- Project 1: Nothing at the moment
+- Project 1: 100%ing a game I'm currently playing
 
-- Project 2: Nothing at the moment
+- Project 2: Nothing at the moment although I'm planning something soon!
 
 ## About Me
 
